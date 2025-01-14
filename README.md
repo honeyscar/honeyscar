@@ -9,10 +9,5 @@
 <p align="center"> My public whispers are off for a reason, please respect that. 💚 If you're trying to crown me I thank you in advance :]
   
 ---
-  
-<p align="center"> Please keep past "allegations" off of Ponytown; These accusations are utter lies, spread by exes who have been harrassing me endlessly.
-<p align="center"> Spreading false information around about my actions as a child after 5+ years is immature and absurd. Leave me alone.
-
----
 
 <p align="center"><img src="https://i.pinimg.com/736x/75/ae/b7/75aeb79cfc8358fa872ce592f27153e4.jpg" width="900" height="150">
