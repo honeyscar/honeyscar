@@ -11,7 +11,7 @@
 ---
   
 <p align="center"> Please keep past "allegations" off of Ponytown; These accusations are utter lies, spread by exes who have been harrassing me endlessly.
-<p align="center"> Spreading fake information around about my actions as a child after 5+ years is immature and absurd. Leave me alone.
+<p align="center"> Spreading false information around about my actions as a child after 5+ years is immature and absurd. Leave me alone.
 
 ---
 
