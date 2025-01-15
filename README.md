@@ -10,4 +10,9 @@
   
 ---
 
+<p align="center"> Spreading around lies about my actions that I did as a <b>child</b> after 5+ years is immature and stupid. Leave me alone.
+<p align="center"> You know who you are.
+
+---
+
 <p align="center"><img src="https://i.pinimg.com/736x/75/ae/b7/75aeb79cfc8358fa872ce592f27153e4.jpg" width="900" height="150">
