@@ -1,3 +1,4 @@
+<p align="center"><sub>img (c) itsoddissey</sub>
 <p align="center"><img src="https://media.discordapp.net/attachments/1259675883661426863/1338271505745838080/fwfwfw2.png?ex=67aa79f6&is=67a92876&hm=20c4633588516f2aa93c1431c0a0ff9a87d95ab95e0fcb7e4dc77150869d088b&=&format=webp&quality=lossless&width=926&height=396" width="700" height="280">
 
 <p align="center"> In schooling as well as working a part-time job; please be mindful that I won't be active constantly!
