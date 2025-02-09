@@ -1,9 +1,6 @@
 <p align="center"><sub><sup>img (c) itsoddissey</sub></sup>
 <p align="center"><img src="https://media.discordapp.net/attachments/1259675883661426863/1338271505745838080/fwfwfw2.png?ex=67aa79f6&is=67a92876&hm=20c4633588516f2aa93c1431c0a0ff9a87d95ab95e0fcb7e4dc77150869d088b&=&format=webp&quality=lossless&width=926&height=396" width="700" height="280">
-
-<p align="center"> In schooling as well as working a part-time job; please be mindful that I won't be active constantly!
   
----
 
 <p align="center"> Scar/Ren ··· He/Thorn/They 🍯 Bodily 19, 25ish in headspace! 🌾 MLM, Abroromantic, Polyamorous
 <p align="center"> Multisourced Introject 🌲 Interaction is adored ! 🌴 Lovingly taken by my two amazing partners <3
@@ -21,7 +18,3 @@
 
 <p align="center"> Spreading around lies about my actions that I did as a <b>child</b> after 5+ years is immature and stupid. Leave me alone.
 <p align="center"> You know who you are.
-
----
-
-<p align="center"><img src="https://i.pinimg.com/736x/75/ae/b7/75aeb79cfc8358fa872ce592f27153e4.jpg" width="900" height="150">
