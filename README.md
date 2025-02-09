@@ -11,7 +11,7 @@
 ---
 
 <p align="center"> Also I mean this in the nicest way possible; DDVAU / Double Hearted AU bootlickers don't interact. I have personal opinions towards the creators & staffing and I'd appreciate if people who act like they 'do no wrong' kindly don't interact with me; I am  however totally willing to discuss why I'm not fond of them. Each opinion to their own. /Gen
-<p align="center"> Ponies are still okay to interact, though! But if you heavily indulge in the AU with little to no thought of whose behind it.. please don't. /Silly
+<p align="center"> Ponies are still okay to interact, though! But if you heavily indulge in the AU with no thought of whose behind it.. please don't. /Silly
 <p align="center"> Also if you act like certain HC/LifeSMP artists are like "gods" or "better than others" dni either you're fucking toxic
 
 ---
