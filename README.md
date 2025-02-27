@@ -18,7 +18,3 @@
 
 <p align="center"> Spreading around lies about my actions that I did as a <b>child</b> after 5+ years is immature and stupid. Leave me alone.
 <p align="center"> You know who you are.
-
----
-
-<p align="center"> oh also if you sit at the lamp post on ponytown and don't move you will be hidden (potentially permanently) btw. this isn't meant to be "entitled" or some shit but me and my boyfriends have been sitting here for months and I don't wanna move. thanks <3
