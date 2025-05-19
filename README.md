@@ -2,8 +2,8 @@
 <p align="center"><img src="https://files.catbox.moe/yewmby.png" width="700" height="280">
   
 
+<p align="center"> Multisourced Introject 🌲 Interaction is adored !
 <p align="center"> Scar/Ren ··· He/Thorn/They 🍯 Bodily 19, 25ish in headspace! 🌾 MLM, Abroromantic, Polyamorous
-<p align="center"> Multisourced Introject 🌲 Interaction is adored ! 🌴 Lovingly taken by my handsome partner <3
 <p align="center"> Host of a suspected OSDD/USDD system! 🌻 Seeking medical recognition once in a better place of home.
 <p align="center"> I ask that you use tonetags when speaking with me, please! Jokingly flirting is okay, too; anything more is discomforting.
 <p align="center"> My public whispers are (usually) off for a reason, please respect that. 💚 If you're trying to crown me I thank you in advance :]
